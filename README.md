@@ -1,1 +1,0 @@
-# auto-farm-event-ps99
